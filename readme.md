@@ -14,7 +14,7 @@
 - Ari Jackson - Ari-Jackson
 - Tafari Excell - woosaaa
 - Carlos Perez - CarlosP721
-- Vandhana Mohan - 
+- Vandhana Mohan - Vandhana-Mohan
 - Yasser Saadi - Ysaadi04
 - Touhami Ben - touhami-ben
 - Riya Alexander - riyaalexander
